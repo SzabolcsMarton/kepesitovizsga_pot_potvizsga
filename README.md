@@ -1,0 +1,1 @@
+# kepesitovizsga_pot_potvizsga
